@@ -1,4 +1,4 @@
-# 
+# Ultime WizTree plugins pour Mac OS | Mis à jour WizTree plugins pour PC Windows. Avec analyse rapide et protection de la vie privée — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
